@@ -11,8 +11,29 @@
 ## Coursework
 
 ### Worksheets
+11 Worksheets, completed during lab
+
+10 are graded
+
+**50 points total**
+
 ### Assignments
+
+3 Assignments, analysis completed in lab & write-up completed independently
+
+All are graded 
+
+**45 points total**
+
 ### Attendance & Participation 
+
+Attendance is mandatory
+
+Worksheets are not graded if you are absent 
+
+Participation counts toward becoming a Lab Tutor for the following semester
+
+**5 points** 
 
 ## Schedule
 
