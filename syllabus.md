@@ -8,6 +8,12 @@
 
 **Contact & Office Hours:** [Hunter College Psychology Faculty Page](https://www.hunter.cuny.edu/artsci/psychology/faculty-and-staff/office-hours/)
 
+## Coursework
+
+### Worksheets
+### Assignments
+### Attendance & Participation 
+
 ## Schedule
 
 ### Part 1
